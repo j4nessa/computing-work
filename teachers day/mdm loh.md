@@ -6,7 +6,7 @@ she always goes the extra mile to help anyone
 the experiments in the lab are always fun
 microscopes, osmosis, paper chromatography
 she makes every lesson interesting with a **bright** smile
-and she helped my grades go # up #
+and she helped my grades go # up # 
 her criticism is _fair_ and _constructive_
 she **never** leaves struggling ones behind
 she inspires everyone to do their best
